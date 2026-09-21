@@ -1,22 +1,18 @@
-![Großstadt-Dschungel](IMG_20250702_140345.jpg)
-# Faktizität
+![Großstadt-Dschungel](Großstadt-Dschungel.jpg)
+# Großstadt-Dschungel
 
-**Titel:** Faktizität  
+**Titel:** Großstadt-Dschungel 
 **Technik:** Öl auf Leinwand  
-**Größe:** 140 × 100 × 4,5 cm  
-**Jahr:** 2025  
-**Preis:** € 3.600
+**Größe:** 120 × 80 × 4,5 cm  
+**Jahr:** 2026 
+**Preis:** € 3.400
 
 ## Bildbeschreibung
 
-„Faktizität“ beschäftigt sich mit der Wahrnehmung von Wirklichkeit und der Frage, wie sich Realität zwischen persönlicher Erfahrung, Interpretation und tatsächlicher Gegebenheit bewegt.
+Der moderne Mensch lebt zwischen Überfluss und Enge, Sichtbarkeit und Einsamkeit. Umgeben von Konsum, Erwartungen und unsichtbaren Regeln sucht er nach Schutz - und verliert dabei
+zunehmend seinen Raum.
 
-Das Werk lädt dazu ein, genauer hinzusehen und die eigene Wahrnehmung zu hinterfragen. Was wir als wahr und wirklich empfinden, wird nicht nur durch das Sichtbare bestimmt, sondern auch durch unsere Erfahrungen, Erinnerungen und Vorstellungen.
+Menschen werden verpackt, eingeordnet und funktional gemacht. Die üppige Pflanzenwelt erscheint zunächst als Rückzugsort, doch auch sie wird zum undurchdringlichen Geflecht.
+Rote Linien durchschneiden das vermeintliche Paradies: Sie stehen für Kontrolle, Abhängigkeit und gesellschaftliche Grenzen.
 
-Die malerische Umsetzung verbindet dabei Ausdruck und Betrachtung und schafft Raum für eine individuelle Interpretation des Werkes.
-
-## Aussage des Werkes
-
-„Faktizität“ steht für die Auseinandersetzung mit dem, was tatsächlich ist – und mit dem, was wir daraus machen.
-
-Das Gemälde soll den Betrachter dazu anregen, die eigene Sichtweise zu hinterfragen und zwischen objektiver Wirklichkeit und persönlicher Wahrnehmung zu unterscheiden.
+"Großstadt-Dschungel" zeigt eine Welt voller Möglichkeiten, in der dennoch kaum Platz zum wirklichen Leben bleibt.
