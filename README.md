@@ -1,7 +1,7 @@
-![Großstadt-Dschungel](Großstadt-Dschungel.jpg)
-# Großstadt-Dschungel
+![Verstrickung](Großstadt-Dschungel.jpg)
+# Verstrickung
 
-**Titel:** Großstadt-Dschungel 
+**Titel:** Verstrickung 
 **Technik:** Öl auf Leinwand  
 **Größe:** 120 × 80 × 4,5 cm  
 **Jahr:** 2026 
